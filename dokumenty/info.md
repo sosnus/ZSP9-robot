@@ -1,0 +1,1 @@
+## Do tego folderu mo¿ecie dodaæ prezentacjê dotycz¹c¹ robota oraz inne dokumenty
